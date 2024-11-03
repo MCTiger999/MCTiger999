@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MCTiger999
-- 👀 I’m interested in money
+- 👀 I’m interested in making my own game
 - 🌱 I’m currently learning Malbolge
 - 💞️ I’m looking to collaborate with Hideo Kojima!❤️
 - 📫 How to reach me N/A
